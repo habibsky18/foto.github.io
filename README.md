@@ -1,0 +1,1 @@
+# foto.github.io
